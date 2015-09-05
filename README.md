@@ -1,1 +1,1 @@
-Just Very Important Robot (c)
+Just Very Important Robot 
